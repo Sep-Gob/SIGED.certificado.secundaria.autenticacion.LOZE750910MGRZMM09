@@ -1,0 +1,2 @@
+# SIGED.certificado.secundaria.autenticacion.LOZE750910MGRZMM09
+LOZE750910MGRZMM09
